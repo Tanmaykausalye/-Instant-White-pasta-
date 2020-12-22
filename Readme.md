@@ -1,0 +1,1 @@
+These reciepe is made for those who not like spices and are busy and want to eat delecious food and make it in just 1 minute.    
